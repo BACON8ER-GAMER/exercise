@@ -1,3 +1,3 @@
 This documentation describes how to use the brand new Automated Spray Bottle 2001.
 
-Note that this spray bottle is totally safe to use for children, adults, pets, and wildlife.
+Note that this spray bottle is totally safe to use for children, adults, pets, and wildlife. And maybe trees.
