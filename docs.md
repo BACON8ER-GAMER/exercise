@@ -4,3 +4,4 @@ Note that this spray bottle is totally safe to use for children, adults, pets, a
 
 The spray bottle requires AA batteries in order to speak.
 
+AAA batteries may also be used.
